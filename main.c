@@ -1,1 +1,1 @@
-this is znaidi 
+this is znaidi windows version
